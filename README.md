@@ -1,2 +1,2 @@
-# Initial page
+# Word Power Made Easy 笔记
 
